@@ -26,6 +26,6 @@
 结语
 希望这些建议能帮助你找到安全、优质的日本AV免费资源，享受更好的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss20250704/ss20250704 ）</span>
 
 
